@@ -9,7 +9,7 @@ TL;DR. This post highlights several key themes:
 2. **Intellectual Commercialization**: The way popular science writers, TED speakers, YouTube vloggers and consultants monetize quantum mysticism to sell books and ideas to an intellectually insecure public  
 3. **Misallocated Resources**: How brilliant minds that could be solving genuine complex systems problems are instead drawn to elegant but irrelevant theoretical puzzles  
 4. **The Black Swan Blindness**: How obsession with microscopic, well-behaved uncertainties leaves us unprepared for the macroscopic, fat-tailed uncertainties that actually shape history  
-5. **Performative Complexity**: The use of sophisticated-sounding quantum concepts as intellectual decoration while avoiding the messy realities of genuine complex systems
+5. **Performative Complexity**: The use of sophisticated-sounding quantum concepts as intellectual decoration while avoiding the messy realities of genuine complex systems 
 
 The conversation maintains both characters’ authentic voices — Taleb’s passionate, combative style and Mandelbrot’s more measured but equally critical perspective — while building toward their shared conclusion that this intellectual misdirection has real costs for society’s ability to understand and prepare for genuine uncertainties.
 

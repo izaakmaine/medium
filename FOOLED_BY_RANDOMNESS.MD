@@ -1,5 +1,3 @@
----
-
 **Fooled by Randomness**
 
 TL;DR. This post highlights several key themes:

@@ -2,11 +2,11 @@
 
 ---
 
-## This post outlines exploring how God's salvation unfolded through these three pivotal figures across history. Each chapter examines the specific historical context that made their ministries possible and necessary, while weaving together the theme of how God allows temporary chaos and opposition to ultimately serve His eternal purposes.
+This post outlines exploring how God's salvation unfolded through these three pivotal figures across history. Each chapter examines the specific historical context that made their ministries possible and necessary, while weaving together the theme of how God allows temporary chaos and opposition to ultimately serve His eternal purposes.
 
-## The narrative shows how each "angel" built upon the previous one's work: Paul established the foundation of grace for all nations, Luther broke the chains of religious bondage, and Manalo delivered the final warning message. Throughout each era, the pattern remains consistent \- God's messengers face fierce opposition, yet their sufferings and the surrounding turmoil ultimately advance His kingdom.
+The narrative shows how each "angel" built upon the previous one's work: Paul established the foundation of grace for all nations, Luther broke the chains of religious bondage, and Manalo delivered the final warning message. Throughout each era, the pattern remains consistent \- God's messengers face fierce opposition, yet their sufferings and the surrounding turmoil ultimately advance His kingdom.
 
-## 
+---
 
 ## **Chapter 1: The First Angel \- Paul of Tarsus (33-67 AD)**
 
